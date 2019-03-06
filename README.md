@@ -1,1 +1,1 @@
-# Funs are part of our life.
+# Funs make our life easy.
